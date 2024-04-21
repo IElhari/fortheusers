@@ -1,4 +1,4 @@
-[This Man](https://tenor.com/view/avengers-infinity-war-marvel-chadwick-boseman-tchalla-gif-15744736)
+![This Man](https://tenor.com/view/avengers-infinity-war-marvel-chadwick-boseman-tchalla-gif-15744736)
 
 [Website](https://ryanmontgomery.me/)
 
